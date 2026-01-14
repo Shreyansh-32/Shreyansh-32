@@ -80,7 +80,7 @@ Currently open to **internships, trainee, and junior roles**.
 ## 📫 Connect With Me
 
 - **GitHub:** https://github.com/Shreyansh-32  
-- **LinkedIn:** https://linkedin.com/in/yourprofile  
+- **LinkedIn:** https://www.linkedin.com/in/shreyansh-thakur-4314822b3
 - **Email:** shreyanshthakur0609@gmail.com  
 
 ---
